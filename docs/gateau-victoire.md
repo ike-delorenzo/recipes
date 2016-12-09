@@ -20,4 +20,4 @@ This dense cake, inspired by a Julia Child recipe, has been served daily at Zuni
 
 3. Fold one-quarter of the egg mixture into the melted chocolate, then fold chocolate mixture and whipped cream into remaining egg mixture. Pour batter into prepared pan and set pan in a roasting pan. Pour hot water into roasting pan to a depth of 1" and transfer to oven. Bake cake until a toothpick inserted in center of cake comes out clean, 1 hour. Turn off oven, leave oven door ajar, and let cake rest for 30 minutes. Remove cake from oven in its water bath and let rest for 30 minutes more. Remove cake from oven water bath, invert onto a plate, and peel off parchment. Serve warm or at room temperature with whipped cream, if you like.
 
-![Zuni Gâteau Victoire](http://ike.d.pr/9kmw+)
+![Zuni Gâteau Victoire](http://ike.d.pr/1oGDa4+)
